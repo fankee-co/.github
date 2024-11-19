@@ -12,8 +12,6 @@ Buy a share of the tracks, share them with your friends, become a Hit Scout, and
 <br/>
 <br/>
 <br/>
-<br/>
-<br/>
 
 # WE ARE THE FIRST COMMUNITY-DRIVEN LABEL
 
